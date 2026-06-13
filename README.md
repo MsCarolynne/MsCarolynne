@@ -1,5 +1,4 @@
-yo im still working on it ok #cute 
-art by me btw im gonna go draw smt else later
-
+<p align="center">
+  Jolliest Person On Pt
 ![image alt](Başlıksız14_20260531164600.png)
 
