@@ -3,4 +3,7 @@
   
 ![image alt](Başlıksız37_20260707202103.png)
 <p align="center">
-fandom dni(uid) I do not support Qw*l anymore btw.
+fandom dni(uid)
+  Support Qw*l supporters dni.
+  Doubles/Yumes IwEc or dni(uid)
+  i block freely btw
