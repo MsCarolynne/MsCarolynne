@@ -1,9 +1,13 @@
 ![image alt](Başlıksız37_20260707202103.png)
 <p align="center">
-fandom dni(uid)
+  the person with 100 Bobette's
+  
+  
   <p align="center">
-    Qw*l supporters dni.
+    fandom dni(uid)
     <p align="center">
-      Doubles/Yumes IwEc or dni(uid)
+      Qw*l supporters dni.
       <p align="center">
-        i block freely btw
+        Doubles/Yumes IwEc or dni(uid)
+        <p align="center">
+          i block freely btw
