@@ -4,7 +4,7 @@
   
   
   <p align="center">
-  • Doubles dni im better than all of you
+  • Doubles dni im better than all of you (Y'all are weird)
   <p align="center">
   • Rude To Me? Except the same! an eye for an eye ^_^
   <p align="center">
