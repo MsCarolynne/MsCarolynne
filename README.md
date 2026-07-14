@@ -14,3 +14,5 @@
   • Do Not say "Ur Github Says "im nice" Ur being rude" if you dont know the whole context btw.
   <p align="center">
   • Also Sprout fictkins IwEc , i have a reason (ask 4 it)
+  <p align="center">
+  • also Dyle Yume , Idc about sharing im okay
