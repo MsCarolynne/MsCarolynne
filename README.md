@@ -9,3 +9,4 @@
   • Rude To Me? Except the same! an eye for an eye ^_^
   <p align="center">
   • I like talking With Ppl, dont jump into conv it bothers me a lot. respect my boundaries and we are okay.
+  • Im Nice If I feel ok with you we can be friends :-) dont force me to be! 
