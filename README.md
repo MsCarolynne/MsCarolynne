@@ -12,3 +12,5 @@
   + Im Nice If I feel ok with you we can be friends :-) dont force me to be :(
   <p align="center">
   • Do Not say "Ur Github Says "im nice" Ur being rude" if you dont know the whole context btw.
+  <p align="center">
+  • Also Sprout fictkins IwEc , i have a reason (ask 4 it)
