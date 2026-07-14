@@ -8,6 +8,4 @@
   <p align="center">
   • Rude To Me? Except the same! an eye for an eye ^_^
   <p align="center">
-  • I like talking With Ppl, but it bothers me sometimes. respect my boundaries and we are okay.
-
-  
+  • I like talking With Ppl, dont jump into conv it bothers me a lot. respect my boundaries and we are okay.
