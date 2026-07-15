@@ -17,4 +17,6 @@
   <p align="center">
   • also Dyle Yume , Idc about sharing im okay 
     <p align="center">
-      THANK YOU [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+      THANK YOU 
+      <p align="center">
+        [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
