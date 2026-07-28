@@ -3,4 +3,13 @@
   
   ![image alt](Başlıksız52_20260728210409.png)
 
-wipppppp
+<div align="center">
+  <details>
+    <summary>DNI</summary>
+    <br>
+    <p align="left">
+      wipp🎄 tree
+    </p>
+  </details>
+</div>
+
