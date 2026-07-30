@@ -3,13 +3,5 @@
   
   ![image alt](Başlıksız52_20260728210409.png)
 
-<div align="center">
-  <details>
-    <summary>DNI</summary>
-    <br>
-    <p align="left">
-      wipp🎄 tree
-    </p>
-  </details>
-</div>
-
+<p align="center"> 
+  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} NO}}$ ${{\color{#aed13f} DNI}}$ ${{\color{#aed13f} JUST}}$ ${{\color{#aed13f} DONT}}$ ${{\color{#aed13f} BE}}$ ${{\color{#aed13f} PROBLEMATIC}}$  ${{\color{#aed13f} ,}}$ ${{\color{#aed13f} I}}$ ${{\color{#aed13f} BLOCK}}$ ${{\color{#aed13f} FREELY}}$ ${{\color{#aed13f} BTW}}$ 
