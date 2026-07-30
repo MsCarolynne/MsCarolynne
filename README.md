@@ -4,4 +4,8 @@
   ![image alt](Başlıksız52_20260728210409.png)
 
 <p align="center"> 
-  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} NO}}$ ${{\color{#aed13f} DNI}}$ ${{\color{#aed13f} JUST}}$ ${{\color{#aed13f} DONT}}$ ${{\color{#aed13f} BE}}$ ${{\color{#aed13f} PROBLEMATIC}}$  ${{\color{#aed13f} ,}}$ ${{\color{#aed13f} I}}$ ${{\color{#aed13f} BLOCK}}$ ${{\color{#aed13f} FREELY}}$ ${{\color{#aed13f} BTW}}$ 
+  
+  $$ \color{#aed13f}{\Huge{\textsf{${{\color{#aed13f} NOE}}$ ${{\color{#f5c45d} or}}$  ${{\color{#d41914} BOBETTE}}$  }}} $$ 
+  
+<p align="center"> 
+  ${{\color{#aed13f} •}}$ ${{\color{#d41914} NO}}$ ${{\color{#f5c45d} DNI}}$ ${{\color{#aed13f} JUST}}$ ${{\color{#d41914} DONT}}$ ${{\color{#f5c45d} BE}}$ ${{\color{#aed13f} PROBLEMATIC}}$  ${{\color{#d41914} ,}}$ ${{\color{#f5c45d} I}}$ ${{\color{#aed13f} BLOCK}}$ ${{\color{#d41914} FREELY}}$ ${{\color{#f5c45d} BTW}}$ 
