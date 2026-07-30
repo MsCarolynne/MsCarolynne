@@ -8,9 +8,14 @@
   $$ \color{#aed13f}{\Huge{\textsf{${{\color{#aed13f} NOE}}$ ${{\color{#f5c45d} or}}$  ${{\color{#d41914} BOBETTE}}$  }}} $$ 
   
 <p align="center"> 
-  ${{\color{#aed13f} •}}$ ${{\color{#d41914} NO}}$ ${{\color{#f5c45d} DNI}}$ ${{\color{#aed13f} JUST}}$ ${{\color{#d41914} DONT}}$ ${{\color{#f5c45d} BE}}$ ${{\color{#aed13f} PROBLEMATIC}}$  ${{\color{#d41914} ,}}$ ${{\color{#f5c45d} I}}$ ${{\color{#aed13f} BLOCK}}$ ${{\color{#d41914} FREELY}}$ ${{\color{#f5c45d} BTW}}$ 
+  🎄 ${{\color{#aed13f} •}}$ ${{\color{#d41914} Doubles/Yumes}}$ ${{\color{#f5c45d} Dniㅤ,}}$ ${{\color{#aed13f} Fandom}}$ ${{\color{#d41914} Dniuid}}$
+  <p align="center">
+   🎁 ${{\color{#f5c45d} •}}$ ${{\color{#aed13f} Dni}}$  ${{\color{#d41914} Dark/ProShip}}$ ${{\color{#f5c45d} Both}}$ ${{\color{#aed13f} Same}}$ ${{\color{#d41914} Idc}}$
 
 <p align="Center">
+❄️ ${{\color{#aed13f} •}}$ ${{\color{#aed13f} Dont}}$ ${{\color{#D41914} Jump}}$ ${{\color{#f5c45d} into}}$ ${{\color{#aed13f} Conversations}}$
+
+<p align="center">
   
   <img src="https://64.media.tumblr.com/b2e2a84d79c7405e64c069d31eefddc6/b862c0087e4afaba-80/s250x400/39628df7b4f338c1130ce8e872b8c3dd5d26b8e4.gifv" width="100" alt="App Demo">
 <img src="https://64.media.tumblr.com/84a621517678068ad556d4e9b3fc1a54/b862c0087e4afaba-0b/s250x400/8cb314de02667c264a16436281b6c6bf0cf17ef7.gifv" width="100" alt="App Demo">
