@@ -9,7 +9,7 @@
   
 <p align="center"> 
   <img src="https://pixels.crd.co/assets/images/gallery95/8c588f66.gif?v=29416114" width="20" alt="App Demo">
-   ${{\color{#aed13f} •}}$ ${{\color{#d41914} Doubles/Yumes}}$ ${{\color{#f5c45d} Dniㅤ,}}$ ${{\color{#aed13f} Fandom}}$ ${{\color{#d41914} Dniuid}}$
+   ${{\color{#aed13f} •}}$ ${{\color{#d41914} Doubles/Yumes}}$ ${{\color{#f5c45d} Dniㅤ,}}$ ${{\color{#aed13f} Fandom}}$ ${{\color{#d41914} DNI(uid)}}$
   <p align="center">
   
   <img src="https://pixels.crd.co/assets/images/gallery44/6ab2c44a.gif?v=29416114" width="20" alt="App Demo">
