@@ -24,11 +24,3 @@
   <img src="https://64.media.tumblr.com/b2e2a84d79c7405e64c069d31eefddc6/b862c0087e4afaba-80/s250x400/39628df7b4f338c1130ce8e872b8c3dd5d26b8e4.gifv" width="100" alt="App Demo">
 <img src="https://64.media.tumblr.com/84a621517678068ad556d4e9b3fc1a54/b862c0087e4afaba-0b/s250x400/8cb314de02667c264a16436281b6c6bf0cf17ef7.gifv" width="100" alt="App Demo">
 <img src="https://64.media.tumblr.com/bd14438efb28a1bb46c14effb2714fe3/b862c0087e4afaba-0e/s250x400/a6706fb5a03bbc08612345f4b2f4d5eb895fc77a.gifv" width="100" alt="App Demo">
-
-<p align="Center">
-
-<img src="https://pixels.crd.co/assets/images/gallery95/108e9c21.gif?v=29416114" width="50" alt="App Demo">
-<img src="https://pixels.crd.co/assets/images/gallery95/507e5b08.gif?v=29416114" width="50" alt="App Demo">
-<img src="https://pixels.crd.co/assets/images/gallery95/db35b090.gif?v=29416114" width="50" alt="App Demo">
-
-
