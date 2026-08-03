@@ -17,7 +17,7 @@
 
 <p align="Center">
 <img src="https://pixels.crd.co/assets/images/gallery95/25057ca5.gif?v=29416114" width="20" alt="App Demo">
-  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} Dont}}$ ${{\color{#D41914} Jump}}$ ${{\color{#f5c45d} into}}$ ${{\color{#aed13f} Conversations}}$
+  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} I}}$ ${{\color{#D41914} Block}}$ ${{\color{#f5c45d} Freely}}$ ${{\color{#aed13f} yoo!!}}$
 
 <p align="center">
   
