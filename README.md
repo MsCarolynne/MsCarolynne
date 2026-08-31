@@ -30,7 +30,7 @@
     <summary>DNI</summary>
     <br>
 <p align="center">
-  ${{\color{#aed13f} •⠀Bobette Irl's⠀/⠀Yume's /⠀Fictkins⠀or⠀whatever ⠀umbrella⠀ term⠀ you⠀ fall⠀ under}}$
+  ${{\color{#aed13f} •⠀Bobette⠀Irl's⠀/⠀Yume's /⠀Fictkins⠀or⠀whatever ⠀umbrella⠀ term⠀ you⠀ fall⠀ under}}$
   <p align="center">
     ${{\color{#D41914} •⠀Sprout⠀Irl's /⠀Fictkin's}}$
   <p align="left"
