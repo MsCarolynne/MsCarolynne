@@ -9,7 +9,7 @@
   
 <p align="center"> 
   <img src="https://pixels.crd.co/assets/images/gallery95/8c588f66.gif?v=29416114" width="20" alt="App Demo">
-   ${{\color{#aed13f} •}}$ ${{\color{#aed13f} Fandom}}$ ${{\color{#d41914} DNI(uid)}}$
+   ${{\color{#aed13f} •}}$ ${{\color{#aed13f} Fandom}}$ ${{\color{#d41914} DNI(uid)}}$ ${{\color{#aed13f} Double's/Yume's}}$ ${{\color{#d41914} DNI.}}$
   <p align="center">
   
   <img src="https://pixels.crd.co/assets/images/gallery44/6ab2c44a.gif?v=29416114" width="20" alt="App Demo">
@@ -25,17 +25,4 @@
 <img src="https://64.media.tumblr.com/84a621517678068ad556d4e9b3fc1a54/b862c0087e4afaba-0b/s250x400/8cb314de02667c264a16436281b6c6bf0cf17ef7.gifv" width="100" alt="App Demo">
 <img src="https://64.media.tumblr.com/bd14438efb28a1bb46c14effb2714fe3/b862c0087e4afaba-0e/s250x400/a6706fb5a03bbc08612345f4b2f4d5eb895fc77a.gifv" width="100" alt="App Demo">
 
-<div align="center">
-  <details>
-    <summary>DNI</summary>
-    <br>
-<p align="center">
-  ${{\color{#aed13f} •⠀Bobette⠀Irl's⠀/⠀Yume's /⠀Fictkins⠀or⠀whatever ⠀umbrella⠀ term⠀ you⠀ fall⠀ under}}$
-  <p align="center">
-    ${{\color{#D41914} •⠀Sprout⠀Irl's /⠀Fictkin's(iwec?)}}$
-  <p align="left"
-      <p align="center">
-      
-   </p>
-  </details>
-</div>
+I'm gonna add sp later
