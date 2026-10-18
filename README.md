@@ -17,8 +17,8 @@
 
 <p align="Center">
 <img src="https://pixels.crd.co/assets/images/gallery95/25057ca5.gif?v=29416114" width="20" alt="App Demo">
-  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} I}}$ ${{\color{#D41914} Block}}$ ${{\color{#f5c45d} Freely}}$ ${{\color{#aed13f} yoo!!}}$
-
+  ${{\color{#aed13f} •}}$ ${{\color{#aed13f} I}}$ ${{\color{#D41914} Block}}$ ${{\color{#f5c45d} Freely}}$ 
+  
 <p align="center">
   
   <img src="https://64.media.tumblr.com/b2e2a84d79c7405e64c069d31eefddc6/b862c0087e4afaba-80/s250x400/39628df7b4f338c1130ce8e872b8c3dd5d26b8e4.gifv" width="100" alt="App Demo">
